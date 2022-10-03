@@ -41,5 +41,5 @@ Hua Sun*, Song Cao*, R. Jay Mashl*, Chia-Kuei Mo*, Simone Zaccaria*, et al.
 
 Contact
 -------------
-Hua Sun, <hua.sun@wustl.edu>
+Hua Sun, <hua.sun229@gmail.com>
 
